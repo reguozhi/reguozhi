@@ -6,7 +6,8 @@
       my Email:wujiaying321@outlook.com
       my twitter id:@hotjuicee
       
-      The above two methods can reach me quickly~ Nice to meet you! 
+      The above two methods can reach me quickly~
+- ✨Nice to meet you! 
 
 
 <!---
